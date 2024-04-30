@@ -1,0 +1,5 @@
+- ⚡ Kate Bianchi
+- 👋 @katebianchi
+- 👀 Docente
+- 📫 emails: katebianchii2013@gmail.com
+- 😄
